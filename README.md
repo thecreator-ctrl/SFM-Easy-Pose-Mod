@@ -1,1 +1,1 @@
-not all the code is uplaoded here
+not all code is uploaded here
